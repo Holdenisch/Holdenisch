@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Holdenisch
+- 👀 I’m interested in ... Well, stuff.
+- 🌱 I’m currently learning ... Also stuff.
+- 💞️ I’m looking to collaborate on ... Actually, I don't think I will.
+- 📫 How to reach me ... Eh, dunno
